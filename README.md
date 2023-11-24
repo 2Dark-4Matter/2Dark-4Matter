@@ -1,5 +1,5 @@
 - Heya I’m @2Dark-4Matter 
-- I’m currently studying Python, would love any tips on it.
+- I’m currently studying Python, would love any tips that help with it.
 - If you wish to reach me, just text me on discord, user is Black.exe, see ya.
 
 <!---
